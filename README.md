@@ -215,4 +215,4 @@ Tencent WeGame is offered as the full free version, with all features and update
 Ready to explore the exciting world of gaming? **Download Tencent WeGame free today and start your adventure!**
 
 ---
-**Last updated:** 2026-10-31 01:58:50 UTC
+**Last updated:** 2026-10-31 08:16:09 UTC
